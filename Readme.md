@@ -1,1 +1,1 @@
-# Hallo nama saya Weni
+# Hallo nama saya Weni putri kedua dari bapak Agus Sumardi dan Siti Aminah
